@@ -1,5 +1,6 @@
 Hi there guys
-Recently left the programming team of https://github.com/NewDEV-github/Foxy-Adventure, although I didn't leave the actual dev tean, right now I'm a tester.
+
+Recently left the programming team of https://github.com/NewDEV-github/Foxy-Adventure, although I didn't leave the actual dev team, right now I'm a tester.
 
 Just being a Minecrafter who regrets trying to become a furry
 
