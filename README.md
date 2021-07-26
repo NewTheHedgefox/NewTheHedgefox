@@ -1,5 +1,9 @@
-Hi there guys
-
-(almost) cured depression, doing some random coding sometimes, recommending Colgate.
-
-You can contact me on Discord (infev.xml#0473), Facebook (https://www.facebook.com/new.fox.90410/) and Twitter (https://twitter.com/infevlol)
+short (5 ft 2 1/2 inch/159cm)
+sometimes codes random things
+memes
+regularly posts on twitter (https://twitter.com/infevlol)
+sometimes posts on tiktok (https://www.tiktok.com/@infevlol)
+musician
+add me on discord infev.xml#0473
+follow my spotify https://sptfy.com/followinfev
+plays minecraft a lot
