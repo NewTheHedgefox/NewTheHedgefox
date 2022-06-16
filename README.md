@@ -1,4 +1,3 @@
-short (5 ft 4 inch/166cm)
 sometimes codes random things
 memes
 regularly posts on twitter (https://twitter.com/infevlol)
