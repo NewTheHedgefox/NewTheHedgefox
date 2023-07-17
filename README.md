@@ -8,8 +8,10 @@ sometimes posts on tiktok (https://www.tiktok.com/@infevlol)
 
 musician
 
-add me on discord infevlol#0473
+add me on discord @infevlol
 
 follow my spotify https://sptfy.com/followinfev
 
-plays minecraft a lot
+perfect
+
+planes
