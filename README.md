@@ -12,6 +12,6 @@ add me on discord @infevlol
 
 follow my spotify https://sptfy.com/followinfev
 
-perfect
+i speak polish
 
-planes
+ooo janek szybko żeś rozumy zjadł
