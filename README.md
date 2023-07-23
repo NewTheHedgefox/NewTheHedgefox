@@ -12,6 +12,8 @@ add me on discord @infevlol
 
 follow my spotify https://sptfy.com/followinfev
 
+5'9" (176.5cm)
+
 i speak polish
 
 ooo janek szybko żeś rozumy zjadł
