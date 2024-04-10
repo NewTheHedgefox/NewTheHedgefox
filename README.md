@@ -8,7 +8,7 @@ rarely posts on tiktok (https://www.tiktok.com/@infevlol)
 
 musician
 
-add me on discord @infevlol
+add me on discord @infylol
 
 follow my spotify https://sptfy.com/followinfev
 
