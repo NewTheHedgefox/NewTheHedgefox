@@ -12,8 +12,7 @@ add me on discord @infevlol
 
 follow my spotify https://sptfy.com/followinfev
 
-5'9" (176.5cm)
+5'11" (180cm)
 
-i speak polish
+i speak polish english and a bit of german
 
-ooo janek szybko żeś rozumy zjadł
