@@ -2,6 +2,8 @@ sometimes codes random things
 
 memes
 
+gay, ace, gender questioning
+
 hardly ever posts on twitter (https://twitter.com/infevlol)
 
 rarely posts on tiktok (https://www.tiktok.com/@infevlol)
